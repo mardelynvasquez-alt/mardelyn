@@ -1,2 +1,0 @@
-# mardelyn
-ova de ardora
